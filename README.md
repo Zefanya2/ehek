@@ -1,0 +1,2 @@
+# ehek
+ngapain kelen ngopi
